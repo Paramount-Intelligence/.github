@@ -75,5 +75,5 @@ We bring together:
 ## Connect With Us
 
 🌐 Website: https://paramountintelligence.co/  
-🔗 LinkedIn: [https://www.linkedin.com/company/paramount-intelligence  ](https://www.linkedin.com/company/paramount-intelligence-co)
+🔗 LinkedIn: [https://www.linkedin.com/company/paramount-intelligence  ](https://www.linkedin.com/company/paramount-intelligence-co) 
 📩 Email: info@paramountintelligence.co  
